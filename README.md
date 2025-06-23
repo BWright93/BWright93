@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any projects involving Data Analysis, also looking for employment.
 - 📫 How to reach me 
 - 😄 Pronouns: Male
-- ⚡ Fun fact: 
+- ⚡ Fun fact: I'm on the autism spectrum.
 
 <!---
 BWright93/BWright93 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
